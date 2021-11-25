@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Vava220
+- 👀 I’m interested in BlockChain / Coding
+- 🌱 I’m currently learning Bts
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+
